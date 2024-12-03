@@ -21,4 +21,4 @@ gomes.joao30@escola.pr.gov.br
 
 gomes.joao30@escola.pr.gov.br
 
-![descrição do GIF](link GIF do Tenor) meu presente de natal e esforço.
+![descrição do GIF](link GIF do Tenor) meu presente de natal é esforço.
